@@ -1,4 +1,0 @@
-qwertr
-rfqe
-fd
-
